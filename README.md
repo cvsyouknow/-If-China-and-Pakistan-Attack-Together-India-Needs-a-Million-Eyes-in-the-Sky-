@@ -1,4 +1,4 @@
-# Priyanshu Singh
+# Chitranjan Vikram Singh
 18y/o founder of VRD — drone swarms & computer vision for India.
 NIOS 2025 | Aspiring GSEP Scholar | Building in public.
 
